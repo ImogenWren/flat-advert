@@ -1,7 +1,7 @@
 # Flat Advert!
 
 Hey! My name is Imogen and I am looking for a flatmate to take over one of the rooms in a shared flat. 
-Rent: £500 + Bills & Council Tax (~£131 going from last months payment)
+- Rent: £500 + Bills & Council Tax (~£131 going from last months payment)
 
 
 ## Description & Photos
