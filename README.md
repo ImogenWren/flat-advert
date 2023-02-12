@@ -1,11 +1,38 @@
-# Flat Advert!
-
-Hey! I am looking for a flatmate to take over one of the rooms in a shared flat. 
+Hey! I am looking for a flatmate to take over the tenancy agreement for one of the rooms in a shared flat. 
 - Rent: £500 + Bills & Council Tax (~£131 going from last months payment)
-
-## Description & Photos
-
-The flat is a 2 bedroom 2 shower on the 3rd floor, situated at the North end of Pilrig Park, and a 5 minute walk to leith walk. It is carpeted and well insulated throughout the main hallway, living room and bedrooms.
+- Location:  Stanwell Street - EH6
+## Description
+The flat is a 2 bedroom 2 shower on the 3rd floor, situated at the North end of Pilrig Park, and a 5 minute walk to leith walk. It is fully furnished, well insulated and carpeted throughout the main hallway, living room and bedrooms.
+### Bedroom
+The bedroom for let has a double bed and a decent sized cupboard/wardrobe. 
+### Master Bathroom
+- Combined Bath/Shower
+- Toilet
+- Sink with good sized mirror/cupboard
+- Heated Towel Rail
+- Almost exclusive use as the other bedroom has an on suite shower/toilet
+### Living Room
+ The living room has a cozy feeling with beautiful views out over Pilrig Park. 
+### Kitchen
+ The kitchen is compact and has everything needed to cook decent meals including a large fridge freezer.
+- Microwave
+- Fan Oven 
+- Gas Stovetop
+- Washing Machine/Tumble Dryer
+### Other Amenities
+- Locked bike shed
+- Bus stop within 3 mins walk.
+- Tescos Local a few mins walk away
+- Pilrig park out the back door.
+## About Me
+I am a working professional, and I am looking for a flatmate who has a similar lifestyle.
+I enjoy socialising and will often have people over at weekends, but I also enjoy my own time, and I am respectful of those that also need their own time.
+In my spare time I work on creative projects, I am a musician, I would love it if you were too!
+I can be a loud person so may not be a suitable housemate for someone with sound sensitivity.
+## Tenancy Agreement
+The Tenancy agreement is due to start on the 17th of March, however the room will be available from the 4th.
+Rent is £500 pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 for each tenant for gas & electricity, and £76 each for council tax.
+This flat is an aggressively LGBTQIA+ Positive space!
 
 ### Bedroom
 The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The master bathroom is spacious, with Bath and Shower facilities.
@@ -28,22 +55,3 @@ The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The m
  
  ![20230212_161753](https://user-images.githubusercontent.com/97303986/218328056-f9bce90b-9ee8-4bd2-90d6-a40a45d911fe.jpg)
 
-### Other Amenities
-- Washing Machine/Tumble Dryer
-- Locked bike shed
-- Bus stop within 3 mins walk.
-- Tescos Local a few mins walk away
-- Pilrig park out the back door.
-
-## About Me
-
-I am a working professional, and I am looking for a flatmate who has a similar lifestyle.
-I enjoy socialising and will often have people over at weekends, but I also enjoy my own time, and I am respectful of those that also need their own time.
-
-In my spare time I work on creative projects, I am a musician, I would love it if you were too!
-I can be a loud person so may not be a suitable housemate for someone with sound sensitivity.
-
-The Tenancy agreement is due to start on the 17th of March, however the room will be available from the 4th.
-Rent is £500 pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 each for gas & electricity, and £76 for council tax.
-
-This flat is an aggressively LGBTQIA+ Positive!
