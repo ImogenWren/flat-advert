@@ -6,7 +6,8 @@ Hey! My name is Imogen and I am looking for a flatmate to take over one of the r
 
 ## Description & Photos
 
-The flat is a 2 bedroom 2 shower on the 3rd floor, situated at the North end of Pilrig Park, and a 5 minute walk to leith walk.
+The flat is a 2 bedroom 2 shower on the 3rd floor, situated at the North end of Pilrig Park, and a 5 minute walk to leith walk. It is carpeted and well insulated throughout the main hallway, living room and bedrooms.
+
 
 ### Bedroom
 The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The master bathroom is spacious, with Bath and Shower facilities.
@@ -38,6 +39,8 @@ The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The m
 - Pilrig park out the back door.
 
 
+
+
 ## About Me
 
 I am a working professional, and I am looking for a flatmate who has a similar lifestyle.
@@ -51,3 +54,5 @@ The Tenancy agreement is due to start on the 17th of March, however the room wil
 Rent is £500pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 each for gas & electricity, and £76 for council tax.
 
 This flat is an agressivily LGBTQIA+ Positive space. 420 friendly. Looking for someone with great vibes!
+
+
