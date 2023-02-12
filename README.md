@@ -31,6 +31,7 @@ The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The m
 
 
 ### Other Aminites
+- Washing Machine/Tumble Dryer
 - Locked bike shed
 - Bus stop within 3 mins walk.
 - Tescos Local a few mins walk away
@@ -40,7 +41,9 @@ The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The m
 ## About Me
 
 I am a working professional, and I am looking for a flatmate who has a similar lifestyle.
-I enjoy socialising and will often have people over at weekends, but I also enjoy my own time, and I am respectful of those that also need their own time. In my spare time I work on creative projects, I am a musican, I would love it if you were too!
+I enjoy socialising and will often have people over at weekends, but I also enjoy my own time, and I am respectful of those that also need their own time.
+
+In my spare time I work on creative projects, I am a musican, I would love it if you were too!
 I can be a loud person so may not be a suitable housemate for someone with sound sensitivity.
 
 
