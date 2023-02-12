@@ -19,7 +19,7 @@ The bedroom for let has a double bed and a decent sized cupboard/wardrobe. The m
 ![20230212_163405](https://user-images.githubusercontent.com/97303986/218328124-14e09834-4648-477f-98bb-2f0cb0bc4792.jpg)
 
 ### Living Room
- The living room has a cozy feeling with beautiful views out over Pilrig Park.
+ The living room has a cozy feeling with beautiful views out over Pilrig Park. 
  ![20230212_162330](https://user-images.githubusercontent.com/97303986/218327982-3b336ef7-db69-4427-91ed-26103eb386e5.jpg)
 ![20230212_162459](https://user-images.githubusercontent.com/97303986/218327996-7a15380e-6c2c-408e-952d-326538bc1540.jpg)
 ![20230212_162512](https://user-images.githubusercontent.com/97303986/218328002-0fce3aa2-0fdf-443a-95e6-8568257aec96.jpg)
