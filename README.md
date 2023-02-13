@@ -3,6 +3,7 @@
 Hey! My name is Imogen. I am looking for a flatmate to take over the tenancy agreement for one of the rooms in a shared flat. 
 - Rent: £500 + Bills & Council Tax (~£131 going from last months payment)
 - Location:  Stanwell Street - EH6
+- Council
 
 ## Description
 The flat is a 2 bedroom 2 shower on the 3rd floor, situated at the North end of Pilrig Park, and a 5 minute walk to leith walk. It is fully furnished, well insulated and carpeted throughout the main hallway, living room and bedrooms.
@@ -41,7 +42,7 @@ I can be a loud person so may not be a suitable housemate for someone with sound
 ## Tenancy Agreement
 The Tenancy agreement is due to start on the 17th of March, however the room will be available from the 4th.
 Rent is £500 pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 for each tenant for gas & electricity, and £76 each for council tax.
-This flat is an aggressively LGBTQIA+ Positive space!
+This flat is an aggressively LGBTQIA+ Positive space! 420 Friendly. 
 
 ### Bedroom
 The bedroom for let has a double bed and a decent sized cupboard/wardrobe. 
