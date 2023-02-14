@@ -26,13 +26,13 @@
 
 ## Information Regarding the Flat
 
-- Monthly Rent: £500
-- Security Deposit: £525
+- Monthly Rent: **£500**
+- Security Deposit: **£525**
 
-- Council Tax: £76 per Tennant
+- Council Tax: **£76** per Tennant
 - Utilities (per month):
-  - Gas & Electric: ~£55 per Tennant (Last Billing Cycle)
-  - Broadband Internet: ~£14 (1/2 current contract) 
+  - Gas & Electric: **~£55** per Tennant (Last Billing Cycle)
+  - Broadband Internet: **~£14** (1/2 current contract) 
 
 
 ## About Me
