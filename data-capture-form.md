@@ -13,7 +13,9 @@
 ## Employment Details
 - Monthly Income: 
 - Employeer:
-- Length of Term with Employer
+- Employment Start Data:
+- Length of Term with Employer:
+- Previous Employment if current is < 1 year
 - Savings: (Will help property management firm decide on terms of lease)
 
 ## References & Garentours
