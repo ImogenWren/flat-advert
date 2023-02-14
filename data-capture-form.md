@@ -11,7 +11,8 @@
 
 
 ## Employment Details
-- Monthly Income: 
+- Monthly NET Income: 
+- Salary:
 - Employeer:
 - Employment Start Data:
 - Length of Term with Employer:
