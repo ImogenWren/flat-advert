@@ -7,7 +7,7 @@
 - Email: 
 - Current Address:
 
-### Describe current living situation:
+### Describe current living situation (including pets!):
 
 
 ## Employment Details
@@ -16,13 +16,14 @@
 - Employeer:
 - Employment Start Data:
 - Length of Term with Employer:
-- Previous Employment if current is < 1 year
+- Previous Employment if current is < 1 year:
 - Savings: (Will help property management firm decide on terms of lease)
+- If unemployed/student detail finance, loans maintainance grants, savings, other income sources etc:
 
 ## References & Garentours
 - References:
 
-### Guarentours:
+### Guarentours if available:
 - NET Monthly Income: 
 - DoB: 
 - Mobile: 
@@ -35,12 +36,14 @@
 
 - Council Tax: **£76** per Tennant
 - Utilities (per month):
-  - Gas & Electric: **~£55** per Tennant (Last Billing Cycle)
-  - Broadband Internet: **~£14** (1/2 current contract) 
+  - Gas & Electric: **~£55** per Tennant (Estimated - Last Billing Cycle)
+
 
 
 ## About Me
-_Feel free to answer as much or as little of the following prompts as you like, it is an attempt to make sure we will be a good fit!_
+_Add as much detail as you want, last time they asked us things like "why edinburgh, why leith, how do you know the other tennant..etc", I am happy to say we met and got on, and we have shared social groups (queer hiking but doesnt need to be named). Mention Pets & mitigation, and explain money you are willing/able to put down upfront_
+
+
 
 ## Questions:
 - Cooking habits
