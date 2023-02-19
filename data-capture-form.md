@@ -41,7 +41,7 @@
 
 
 ## About Me
-_Add as much detail as you want, last time they asked us things like "why edinburgh, why leith, how do you know the other tennant..etc", I am happy to say we met and got on, and we have shared social groups (queer hiking but doesnt need to be named). Mention Pets & mitigation, and explain money you are willing/able to put down upfront_
+_Add as much detail as you want, last time they asked us things like "why edinburgh, why leith, how do you know the other tennant..etc", I am happy to say we met and got on, and we have shared social groups. Mention Pets & mitigation, and explain money you are willing/able to put down upfront_
 
 
 
