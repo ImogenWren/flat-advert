@@ -71,7 +71,8 @@ The master bathroom is spacious, with Bath and Shower facilities.
 
 # QUICK COPY & PASTE FORMAT
 
-Hey! My name is Imogen. I am looking for a flatmate to take over the tenancy agreement for one of the rooms in a shared flat.
+Hey! Reposting as last application was rejected by the landlord due to pets!
+My name is Imogen. I am looking for a flatmate to take over the tenancy agreement for one of the rooms in a shared flat. 
 I am the only other Tennent and I want to maintain the LGBTQIA+ safe space I have made there!
 
 ### Quick Details
@@ -113,5 +114,5 @@ About Me
 I am a working professional, and I am looking for a flatmate who has a similar lifestyle. I enjoy socialising and will often have people over at weekends, but I also enjoy my own time, and I am respectful of those that also need their own time. In my spare time I work on creative projects, I am a musician, I would love it if you were too! I can be a loud person so may not be a suitable housemate for someone with sound sensitivity.
 
 Tenancy Agreement
-The Tenancy agreement is due to start on the 17th of March, however the room will be available from the 4th. Rent is £500 pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 for each tenant for gas & electricity, and £76 each for council tax. This flat is an aggressively LGBTQIA+ Positive space!
+The room is available now! Rent is £500 pcm at the moment with rent due on the 17th of the month. Bills are not included, and at the moment are roughly £55 for each tenant for gas & electricity, and £76 each for council tax. This flat is an aggressively LGBTQIA+ Positive space! Unfortunatly the landlord does not accept applications from pet owners, but this isnt a deal breaker for myself personally!
 
